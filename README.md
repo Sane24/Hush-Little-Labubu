@@ -1,2 +1,2 @@
 # Hush-Little-Labubu
-very cute and wholesome labubu game. no horror!
+very cute and wholesome analog horror labubu game!
